@@ -1,1 +1,3 @@
-# Lab1_Ashesi_Premier_League_31122028
+Eyram Fenu
+31122028
+Lab 2
